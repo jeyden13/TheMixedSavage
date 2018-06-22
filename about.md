@@ -4,11 +4,11 @@ title: All AboutTheMixedSavage!!!
 permalink: /about/
 ---
 
-Some information about you!
+Hi ITs theMixedSavage here and if u want to play with me my ps4 name is FatalIsTrash and my 
+SUBSCRIBE!!!!!
 
 ### More Information
-Hi ITs theMixedSavage here and if u want to play with me my ps4 name is FatalIsTrash and my Snapchat is Mixed_BoyKing.
-SUBSCRIBE!!!!!
+I Mainly stream Fortnite,ww2 and im thinking of streaming new games leave ur ideas in the description of my videos and ill comment back whenever i can :)
 
 ### Contact me
 
