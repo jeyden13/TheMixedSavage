@@ -16,4 +16,4 @@ Email Jlws5@k12albemare.org
 Snapchat @Mixed_BoyKing
 Ps4 @FatalIsTrash
 
-[c4kmaker@computers4kids.net](mailto:c4kmaker@computers4kids.net)
+
